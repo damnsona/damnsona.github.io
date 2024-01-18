@@ -1,5 +1,5 @@
 So, hey. You can call me Chibi, Sona’s writer, or whatever the hell.
-If you came here from anywhere that isn't my Twitter, then [@DAMNSONA|https://twitter.com/DAMNSONA] is where you should've originally been, just saying.
+If you came here from anywhere that isn't my Twitter, then [@DAMNSONA](https://twitter.com/DAMNSONA) is where you should've originally been, just saying.
 
 ## Character
 
@@ -11,7 +11,7 @@ Heavily (no pun intended) leaning towards Pentakill Sona as of late, because a) 
 I do love writing the classic/default Sona too; she lives in my heart and in my head rent free. Be nice to her. Buy her cake. Listen to her play, tell her how you like her music.
 
 One thing to remember: *she's not a telepath*. Parentheses text means she's speaking to you via sign language or writing/typing or any other available communication mediums. She also knows Morse code, or whatever is the version of it called on Runeterra. 
-There's an unsorted headcanon thread [here|https://twitter.com/DAMNSONA/status/1732753873721295122].
+There's an unsorted headcanon thread [here](https://twitter.com/DAMNSONA/status/1732753873721295122).
 
 ## Account
 
