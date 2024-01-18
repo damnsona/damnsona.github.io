@@ -1,8 +1,8 @@
-A large, black monster truck was quite an overwhelming presence on the road, and there was an angel at the wheel. Karthus has kindly agreed to drive Sona to the planned doctor’s visit. Kayle was in the bed of the truck; she wasn’t there for anything in particular other than keeping them company, playing the acoustic guitar as she sat outside, letting the wind flow through her wings.
+A large, black monster truck was quite an overwhelming presence on the road; there were two long-haired individuals inside and an angel in the back. Karthus has kindly agreed to drive Sona to the planned doctor’s visit. Kayle was in the bed of the truck; she wasn’t there for anything in particular other than keeping them company, playing the acoustic guitar as she sat outside, letting the wind flow through her wings.
 
 “Nervous?” The deathsinger asked, not really expecting an answer from Sona; his eyes had to be on the road. He did get a response, though; the sound of a fake text-to-speech voice was quite unexpected, startling Karthus for a moment.
 
-(I need to know what’s going on with me but I’m scared of hearing that I’m terminally ill or something,) said the voice, reading what she typed in. Karthus glanced at the keyboardist, who was staring out of the window, forehead pressed against the cold glass, while also holding her phone up, speaker pointed in his direction.
+(I need to know what's going on with me but I'm scared of hearing that I'm terminally ill or something,) said the voice, reading what she typed in. Karthus glanced at the keyboardist, who was staring out of the window, forehead pressed against the cold glass, while also holding her phone up, speaker pointed in his direction.
 
 “Sona… Whatever it is, you got this. You’re a tough cookie, like Kayle usually says. Just follow what they tell you to do, alright?” They pulled up in the parking lot of the hospital; Kayle hopped out from the back of the truck and helped Sona get out of the car. Sona was largely unamused by that move, not wanting to be treated like a dying patient. Kayle ignored her face expression and still held on to Sona’s elbow. “We’ll pick you up at 4, yeah?” She asked.
 
