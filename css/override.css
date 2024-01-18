@@ -4,7 +4,12 @@ body {
   font-family: lato,sans-serif;
 }
 
-a, .site-nav .page-link {
+a, .site-nav {
+    color: #3AAFA9;
+    text-decoration: none;
+}
+
+.site-nav .page-link {
     color: #3AAFA9;
     text-decoration: none;
 }
