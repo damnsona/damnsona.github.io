@@ -1,3 +1,31 @@
+# I.
+
+It started weeks ago. Perhaps around the day she bit into Sett's deep fried sponge, maybe later. But it's been happening approximately since then.
+
+First, it were just random heartbeat increases, flushed skin and such. Sometimes even adrenalin kicking in, senses going overboard. Restlessness, too.
+
+Initially Sona blamed it on the sponge, but in all honesty, she's eaten (and drank) worse during some of her tours. This wasn't that.
+
+It's gotten worse since the New Year. Sometimes the pain was unbearable, making it hard to breathe; sometimes all she wanted to do was to curl up on the bed and not go anywhere.
+
+Weirdest part was that she'd find herself thinking about Sett. Not like her best friend wasn't on her mind before the last few minutes of the past year. He would always be there, but now... Now it was a little too much, up to the point when she couldn't even focus on her daily tasks. Even on the music, on the vital part of her life. Etwahl would comfort her, yet she found herself thinking...overthinking, even.
+
+Still, she wouldn't tell anyone about what happened that day. Not to Kayle, or Phel, or even Rakan.
+No one could know. No one will ever know.
+
+And yet, it was hard to keep hiding her condition. One day Sona broke in front of Kayle when they were chilling without the boys. She ended up cried into the angel's shoulder, yet even then she didn't tell her anything, other than:
+
+(It hurts. Right here.) A fist was placed over her heart.
+
+"That bad, huh? I'm no medic, but I think you should see someone about it."
+
+(Maybe I should,) she handsigned in response, then got up to get a glass of water. She was giving up at this point.
+
+"Skip the hair day then? We'll take ya there tomorrow. And no, I'm not taking 'no' for an answer, I'm just tired of seeing you so unfocused because you're ill and not telling us."
+
+
+## II.
+
 A large, black monster truck was quite an overwhelming presence on the road; there were two long-haired individuals inside and an angel in the back. Karthus has kindly agreed to drive Sona to the planned doctor’s visit. Kayle was in the bed of the truck; she wasn’t there for anything in particular other than keeping them company, playing the acoustic guitar as she sat outside, letting the wind flow through her wings.
 
 “Nervous?” The deathsinger asked, not really expecting an answer from Sona; his eyes had to be on the road. He did get a response, though; the sound of a fake text-to-speech voice was quite unexpected, startling Karthus for a moment.
@@ -104,7 +132,7 @@ Sona blinked. Fingers began clicking on the keyboard faster than usual. (Pardon 
 
 Sona just nodded, clutching her chest once more. Half the words flew past her head; the mention of the ring brought the pain back. How could such sweet memories be laced with so much hurt..? She couldn't understand.
 
-But she also vowed to herself that she will never talk to anyone about what happened on New Year's. Not to Kayle, or Phel, or even Rakan.
+But she also vowed to herself that she will never talk to anyone about what happened on New Year's. 
 
 The physician kept speaking, while Sona was taking deep breaths, gaze unfocused. It took her about half a minute to come back to her senses.
 
