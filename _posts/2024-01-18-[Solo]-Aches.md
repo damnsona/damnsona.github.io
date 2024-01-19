@@ -1,11 +1,8 @@
-<<<<<<< HEAD
-[SOLO] Aches
+# [SOLO] Aches
 
 Mentioning: Karthus, Kayle, Sett & a few others
 
-=======
->>>>>>> 73fc95fa3b996b19428d4f08f663e60eb4746e42
-# I.
+## I.
 
 It started weeks ago. Perhaps around the day she bit into Sett's deep fried sponge, maybe later. But it's been happening approximately since then.
 
