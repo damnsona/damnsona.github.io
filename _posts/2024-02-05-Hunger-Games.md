@@ -1,65 +1,83 @@
 # Hunger Games
 
-Here's the list of all Hunger Games simulations that were held in this account.
+Here's the list of all League of Legends Hunger Games simulations that were held on this account.
 
-Fun facts and stats will be added later...probably.
+---
 
 
 ### 1st Hunger Games
 
-**Date**: 2016-10-10
+**Date**: October 10th, 2016
 
-https://twitter.com/DAMNSONA/status/785424533956206592
+**Link**: <https://twitter.com/DAMNSONA/status/785424533956206592>
 
-**Winner**: [Leona](https://twitter.com/DAMNSONA/status/785430228944482304) with 7 kills
+**Winner**: [Leona](https://twitter.com/DAMNSONA/status/785430228944482304)
 
+**Interesting fact:** No one's been able to beat Leona's record of kill count, which was 7.
+
+---
 
 ### 2nd Hunger Games:
 
-**Date**: 2016-10-10
+**Date**: October 10th, 2016
 
-https://twitter.com/DAMNSONA/status/785432851743379456 
+**Link**: <https://twitter.com/DAMNSONA/status/785432851743379456>
 
-**Winner**: Ahri
+**Winner**: [Ahri](https://twitter.com/DAMNSONA/status/785439904981483520)
+
+---
 
 ### 3rd Hunger Games:
 
-**Date**: 2021-09-23
+**Date**: September 23rd, 2021
 
-https://twitter.com/DAMNSONA/status/1441094907695747077 
+**Link**: <https://twitter.com/DAMNSONA/status/1441094907695747077>
 
 **Winner**: Mordekaiser 
 
+---
+
 ### 4th Hunger Games:
 
-**Date**: 2023-11-11
+**Date**: November 11th, 2023
 
-https://twitter.com/DAMNSONA/status/1723320601991889275 
+**Link:** <https://twitter.com/DAMNSONA/status/1723320601991889275>
 
 **Winner**: Mordekaiser
 
+---
+
 ### 5th Hunger Games:
 
-**Date**: 2023-11-11
+**Date**: November 11th, 2023
 
-https://twitter.com/DAMNSONA/status/1723343521870971067 
+**Link**: <https://twitter.com/DAMNSONA/status/1723343521870971067>
 
 **Winner**: Jayce
 
-### 6th Hunger Games:
-**Date**: 2023-11-12
+---
 
-https://twitter.com/DAMNSONA/status/1723724158687711499 
+### 6th Hunger Games:
+
+**Date**: November 12th, 2023
+
+**Link**: <https://twitter.com/DAMNSONA/status/1723724158687711499>
 
 **Winner**: Sona (me~!)
 
+---
+
 ### 7th Hunger Games:
-**Interesting facts:** Mordekaiser's third win!
-**Date**: 2023-11-12
+
+**Date**: November 12th, 2023
 
 https://twitter.com/DAMNSONA/status/1723753595068129508 
 
 **Winner**: Mordekaiser
+
+**Interesting facts:** This is Mordekaiser's third win. Almost a record (you'll see later why).
+
+---
 
 ### 8th Hunger Games:
 **Date**: 2023-11-30
