@@ -1,3 +1,10 @@
+# Hunger Games
+
+Here's the list of all Hunger Games simulations that were held in this account.
+
+Fun facts and stats will be added later...probably.
+
+
 ### 1st Hunger Games
 
 **Date**: 2016-10-10
