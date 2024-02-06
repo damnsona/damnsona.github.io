@@ -103,21 +103,29 @@ https://twitter.com/DAMNSONA/status/1731005404161683505
 
 Winner: Sett
 
+---
+
 ### 11th Hunger Games:
 
 **Date**: 2024-01-01
 
 https://twitter.com/DAMNSONA/status/1741922635955442038
 
-**Winner**: Hwei
+**Winner**: [Hwei](https://twitter.com/DAMNSONA/status/1741936741945110833)
+
+**Interesting fact:** This is the only case when a player won while being passed out.
+
+---
 
 ### 12th Hunger Games:
 
-**Date**: 2024-01-02
+**Date**: January 2nd, 2024
 
 https://twitter.com/DAMNSONA/status/1742185658112684191 
 
-**Winner**: Jhin
+**Winner**: [Jhin](https://twitter.com/DAMNSONA/status/1742202530153562206)
+
+---
 
 ### 13th Hunger Games:
 
@@ -126,6 +134,8 @@ https://twitter.com/DAMNSONA/status/1742185658112684191
 https://twitter.com/DAMNSONA/status/1743374923207520410
 
 **Winner**: Royce
+
+---
 
 ### 14th Hunger Games:
 
@@ -152,16 +162,19 @@ https://twitter.com/DAMNSONA/status/1748671442529452455
 
 **Winner**: Ahurza
 
+---
+
 ### 17th Hunger Games:
 
 **Date**: 2024-01-26
 
-https://twitter.com/DAMNSONA/status/1750818245085401541 
+**Link:** <https://twitter.com/DAMNSONA/status/1750818245085401541>
 
-**Winner**: Hwei
+**Winner**: [Hwei](https://twitter.com/DAMNSONA/status/1750827928844177596)
+
+---
 
 ### 18th Hunger Games:
-**Interesting fact:** These games featured Hwei's third victory, making him tie with Mordekaiser.
 
 **Date**: 2024-01-27
 
@@ -169,19 +182,28 @@ https://twitter.com/DAMNSONA/status/1751284420839969169
 
 **Winner**: Hwei
 
+**Interesting fact**: This is Hwei's third victory, making him tie with Mordekaiser on the number of wins!
+
+---
+
 ### 19th Hunger Games:
 
-**Date**: 2024-02-03
+**Date**: February 3rd, 2024
 
-https://twitter.com/DAMNSONA/status/1753736140186698224 
+**Link**: <https://twitter.com/DAMNSONA/status/1753736140186698224>
 
-**Winner**: Jhin
+**Winner**: [Jhin](https://twitter.com/DAMNSONA/status/1753744865035207117)
+
+**Interesting fact**: This is Jhin's second victory. Also, these games didn't include Mordekaiser and Hwei, the previous triple winners.
+
+---
 
 ### 20th Hunger Games:
-**Interesting fact:** these games held 36 participants.
 
-**Date**: 2024-02-05
+**Date**: February 5th, 2024
 
-https://twitter.com/DAMNSONA/status/1754620018912838045 
+**Link**: <https://twitter.com/DAMNSONA/status/1754620018912838045>
 
-**Winner**: (Royce)[https://twitter.com/DAMNSONA/status/1754640547895980283]
+**Winner**: [Royce](https://twitter.com/DAMNSONA/status/1754640547895980283)
+
+**Interesting fact:** these games held 36 participants. Also, Sona (i.e. me) holds the record on the amount of deaths during bloodbath - total of 3. This is also Royce's second win.
