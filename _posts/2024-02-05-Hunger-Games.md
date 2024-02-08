@@ -1,169 +1,237 @@
 # Hunger Games
 
-Here's the list of all Hunger Games simulations that were held in this account.
+Here's the list of all League of Legends Hunger Games simulations that were held on this account.
 
-Fun facts and stats will be added later...probably.
+---
 
 
 ### 1st Hunger Games
 
-**Date**: 2016-10-10
+**Date**: October 10th, 2016
 
-https://twitter.com/DAMNSONA/status/785424533956206592
+**Link**: <https://twitter.com/DAMNSONA/status/785424533956206592>
 
-**Winner**: [Leona](https://twitter.com/DAMNSONA/status/785430228944482304) with 7 kills
+**Winner**: [Leona](https://twitter.com/DAMNSONA/status/785430228944482304)
 
+**Interesting fact:** No one's been able to beat Leona's record of kill count, which was 7.
+
+---
 
 ### 2nd Hunger Games:
 
-**Date**: 2016-10-10
+**Date**: October 10th, 2016
 
-https://twitter.com/DAMNSONA/status/785432851743379456 
+**Link**: <https://twitter.com/DAMNSONA/status/785432851743379456>
 
-**Winner**: Ahri
+**Winner**: [Ahri](https://twitter.com/DAMNSONA/status/785439904981483520)
+
+---
 
 ### 3rd Hunger Games:
 
-**Date**: 2021-09-23
+**Date**: September 23rd, 2021
 
-https://twitter.com/DAMNSONA/status/1441094907695747077 
+**Link**: <https://twitter.com/DAMNSONA/status/1441094907695747077>
 
-**Winner**: Mordekaiser 
+**Winner**: [Mordekaiser](https://twitter.com/DAMNSONA/status/1441103076098646027) 
+
+---
 
 ### 4th Hunger Games:
 
-**Date**: 2023-11-11
+**Date**: November 11th, 2023
 
-https://twitter.com/DAMNSONA/status/1723320601991889275 
+**Link:** <https://twitter.com/DAMNSONA/status/1723320601991889275>
 
-**Winner**: Mordekaiser
+**Winner**: [Mordekaiser](https://twitter.com/DAMNSONA/status/1723337161502609919)
+
+---
 
 ### 5th Hunger Games:
 
-**Date**: 2023-11-11
+**Date**: November 11th, 2023
 
-https://twitter.com/DAMNSONA/status/1723343521870971067 
+**Link**: <https://twitter.com/DAMNSONA/status/1723343521870971067>
 
 **Winner**: Jayce
 
-### 6th Hunger Games:
-**Date**: 2023-11-12
+---
 
-https://twitter.com/DAMNSONA/status/1723724158687711499 
+### 6th Hunger Games:
+
+**Date**: November 12th, 2023
+
+**Link**: <https://twitter.com/DAMNSONA/status/1723724158687711499>
 
 **Winner**: Sona (me~!)
 
-### 7th Hunger Games:
-**Interesting facts:** Mordekaiser's third win!
-**Date**: 2023-11-12
+---
 
-https://twitter.com/DAMNSONA/status/1723753595068129508 
+### 7th Hunger Games:
+
+**Date**: November 12th, 2023
+
+**Link**: <https://twitter.com/DAMNSONA/status/1723753595068129508>
 
 **Winner**: Mordekaiser
+
+**Interesting facts:** This is Mordekaiser's third win. Almost a record (you'll see later why).
+
+---
 
 ### 8th Hunger Games:
 **Date**: 2023-11-30
 
-https://twitter.com/DAMNSONA/status/1730308945166700700 
+**Link**: <https://twitter.com/DAMNSONA/status/1730308945166700700>
 
 **Winner**: Lee Sin
 
+**Interesting fact:** We see Mordekaiser's most ridiculous death in this game.
+
+---
+
 ### 9th Hunger Games:
 Also known as: Battle of the Twinks
+
 **Date**: 2023-12-01
 
-https://twitter.com/DAMNSONA/status/1730651020290666904 
+**Link**: <https://twitter.com/DAMNSONA/status/1730651020290666904> 
 
 **Winner**: Aphelios
 
+---
+
 ### 10th Hunger Games:
+
 ALso known as: Battle of the Meatheads
 
 **Date**: 2023-12-01
 
-https://twitter.com/DAMNSONA/status/1731005404161683505 
+**Link**: <https://twitter.com/DAMNSONA/status/1731005404161683505>
 
 Winner: Sett
+
+---
 
 ### 11th Hunger Games:
 
 **Date**: 2024-01-01
 
-https://twitter.com/DAMNSONA/status/1741922635955442038
+**Link**: <https://twitter.com/DAMNSONA/status/1741922635955442038> 
 
-**Winner**: Hwei
+**Winner**: [Hwei](https://twitter.com/DAMNSONA/status/1741936741945110833)
+
+**Interesting fact:** This is the only case when a player won while being passed out.
+
+---
 
 ### 12th Hunger Games:
 
-**Date**: 2024-01-02
+**Date**: January 2nd, 2024
 
-https://twitter.com/DAMNSONA/status/1742185658112684191 
+**Link**: <https://twitter.com/DAMNSONA/status/1742185658112684191>
 
-**Winner**: Jhin
+**Winner**: [Jhin](https://twitter.com/DAMNSONA/status/1742202530153562206)
+
+---
 
 ### 13th Hunger Games:
 
 **Date**: 2024-01-05
 
-https://twitter.com/DAMNSONA/status/1743374923207520410
+**Link**: <https://twitter.com/DAMNSONA/status/1743374923207520410> 
 
 **Winner**: Royce
+
+---
 
 ### 14th Hunger Games:
 
 **Date**: 2024-01-10
 
-https://twitter.com/DAMNSONA/status/1745057986823827808
+**Link**: <https://twitter.com/DAMNSONA/status/1745057986823827808>
 
 **Winner**: Tenebris/Lux
+
+---
 
 ### 15th Hunger Games:
 **Also known as**: Battle of the Bands
 
 **Date**:  2024-01-17
 
-https://twitter.com/DAMNSONA/status/1747592872134684683
+**Link**: <https://twitter.com/DAMNSONA/status/1747592872134684683>
 
-**Winner**: (Viego)[https://twitter.com/DAMNSONA/status/1747603295584018701]
+**Winner**: [Viego](https://twitter.com/DAMNSONA/status/1747603295584018701)
+
+---
 
 ### 16th Hunger Games:
 
 **Date**: 2024-01-20
 
-https://twitter.com/DAMNSONA/status/1748671442529452455
+**Link**: <https://twitter.com/DAMNSONA/status/1748671442529452455>
 
 **Winner**: Ahurza
+
+---
 
 ### 17th Hunger Games:
 
 **Date**: 2024-01-26
 
-https://twitter.com/DAMNSONA/status/1750818245085401541 
+**Link:** <https://twitter.com/DAMNSONA/status/1750818245085401541>
 
-**Winner**: Hwei
+**Winner**: [Hwei](https://twitter.com/DAMNSONA/status/1750827928844177596)
+
+---
 
 ### 18th Hunger Games:
-**Interesting fact:** These games featured Hwei's third victory, making him tie with Mordekaiser.
 
 **Date**: 2024-01-27
 
-https://twitter.com/DAMNSONA/status/1751284420839969169 
+**Link**: <https://twitter.com/DAMNSONA/status/1751284420839969169>  
 
 **Winner**: Hwei
 
+**Interesting fact**: This is Hwei's third victory, making him tie with Mordekaiser on the number of wins!
+
+---
+
 ### 19th Hunger Games:
 
-**Date**: 2024-02-03
+**Date**: February 3rd, 2024
 
-https://twitter.com/DAMNSONA/status/1753736140186698224 
+**Link**: <https://twitter.com/DAMNSONA/status/1753736140186698224>
 
-**Winner**: Jhin
+**Winner**: [Jhin](https://twitter.com/DAMNSONA/status/1753744865035207117)
+
+**Interesting fact**: This is Jhin's second victory. Also, these games didn't include Mordekaiser and Hwei, the previous triple winners.
+
+---
 
 ### 20th Hunger Games:
-**Interesting fact:** these games held 36 participants.
 
-**Date**: 2024-02-05
+**Date**: February 5th, 2024
 
-https://twitter.com/DAMNSONA/status/1754620018912838045 
+**Link**: <https://twitter.com/DAMNSONA/status/1754620018912838045>
 
-**Winner**: (Royce)[https://twitter.com/DAMNSONA/status/1754640547895980283]
+**Winner**: [Royce](https://twitter.com/DAMNSONA/status/1754640547895980283)
+
+**Interesting fact:** these games held 36 participants. Also, Sona (i.e. me) holds the record on the amount of deaths during bloodbath - total of 3. This is also Royce's second win.
+
+---
+
+### 21st Hunger Games
+
+**Date**: February 8th, 2024
+
+**Link**: <https://twitter.com/DAMNSONA/status/1755659601763090766>
+
+**Winner:** [Mordekaiser](https://twitter.com/DAMNSONA/status/1755674849442156677)
+
+**Interesting fact:** By now, Sona is the only one to die in bloodbath 4 times. Also, this is the second occasion of Mordekaiser dying to squirrels.
+The winner of these games is, interestingly enough, a variant of Mordekaiser.
+
+--
+
