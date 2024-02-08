@@ -33,7 +33,7 @@ Here's the list of all League of Legends Hunger Games simulations that were held
 
 **Link**: <https://twitter.com/DAMNSONA/status/1441094907695747077>
 
-**Winner**: Mordekaiser 
+**Winner**: [Mordekaiser](https://twitter.com/DAMNSONA/status/1441103076098646027) 
 
 ---
 
@@ -43,7 +43,7 @@ Here's the list of all League of Legends Hunger Games simulations that were held
 
 **Link:** <https://twitter.com/DAMNSONA/status/1723320601991889275>
 
-**Winner**: Mordekaiser
+**Winner**: [Mordekaiser](https://twitter.com/DAMNSONA/status/1723337161502609919)
 
 ---
 
@@ -71,7 +71,7 @@ Here's the list of all League of Legends Hunger Games simulations that were held
 
 **Date**: November 12th, 2023
 
-https://twitter.com/DAMNSONA/status/1723753595068129508 
+**Link**: <https://twitter.com/DAMNSONA/status/1723753595068129508>
 
 **Winner**: Mordekaiser
 
@@ -82,24 +82,32 @@ https://twitter.com/DAMNSONA/status/1723753595068129508
 ### 8th Hunger Games:
 **Date**: 2023-11-30
 
-https://twitter.com/DAMNSONA/status/1730308945166700700 
+**Link**: <https://twitter.com/DAMNSONA/status/1730308945166700700>
 
 **Winner**: Lee Sin
 
+**Interesting fact:** We see Mordekaiser's most ridiculous death in this game.
+
+---
+
 ### 9th Hunger Games:
 Also known as: Battle of the Twinks
+
 **Date**: 2023-12-01
 
-https://twitter.com/DAMNSONA/status/1730651020290666904 
+**Link**: <https://twitter.com/DAMNSONA/status/1730651020290666904> 
 
 **Winner**: Aphelios
 
+---
+
 ### 10th Hunger Games:
+
 ALso known as: Battle of the Meatheads
 
 **Date**: 2023-12-01
 
-https://twitter.com/DAMNSONA/status/1731005404161683505 
+**Link**: <https://twitter.com/DAMNSONA/status/1731005404161683505>
 
 Winner: Sett
 
@@ -109,7 +117,7 @@ Winner: Sett
 
 **Date**: 2024-01-01
 
-https://twitter.com/DAMNSONA/status/1741922635955442038
+**Link**: <https://twitter.com/DAMNSONA/status/1741922635955442038> 
 
 **Winner**: [Hwei](https://twitter.com/DAMNSONA/status/1741936741945110833)
 
@@ -121,7 +129,7 @@ https://twitter.com/DAMNSONA/status/1741922635955442038
 
 **Date**: January 2nd, 2024
 
-https://twitter.com/DAMNSONA/status/1742185658112684191 
+**Link**: <https://twitter.com/DAMNSONA/status/1742185658112684191>
 
 **Winner**: [Jhin](https://twitter.com/DAMNSONA/status/1742202530153562206)
 
@@ -131,7 +139,7 @@ https://twitter.com/DAMNSONA/status/1742185658112684191
 
 **Date**: 2024-01-05
 
-https://twitter.com/DAMNSONA/status/1743374923207520410
+**Link**: <https://twitter.com/DAMNSONA/status/1743374923207520410> 
 
 **Winner**: Royce
 
@@ -141,24 +149,28 @@ https://twitter.com/DAMNSONA/status/1743374923207520410
 
 **Date**: 2024-01-10
 
-https://twitter.com/DAMNSONA/status/1745057986823827808
+**Link**: <https://twitter.com/DAMNSONA/status/1745057986823827808>
 
 **Winner**: Tenebris/Lux
+
+---
 
 ### 15th Hunger Games:
 **Also known as**: Battle of the Bands
 
 **Date**:  2024-01-17
 
-https://twitter.com/DAMNSONA/status/1747592872134684683
+**Link**: <https://twitter.com/DAMNSONA/status/1747592872134684683>
 
-**Winner**: (Viego)[https://twitter.com/DAMNSONA/status/1747603295584018701]
+**Winner**: [Viego](https://twitter.com/DAMNSONA/status/1747603295584018701)
+
+---
 
 ### 16th Hunger Games:
 
 **Date**: 2024-01-20
 
-https://twitter.com/DAMNSONA/status/1748671442529452455
+**Link**: <https://twitter.com/DAMNSONA/status/1748671442529452455>
 
 **Winner**: Ahurza
 
@@ -178,7 +190,7 @@ https://twitter.com/DAMNSONA/status/1748671442529452455
 
 **Date**: 2024-01-27
 
-https://twitter.com/DAMNSONA/status/1751284420839969169 
+**Link**: <https://twitter.com/DAMNSONA/status/1751284420839969169>  
 
 **Winner**: Hwei
 
@@ -207,3 +219,19 @@ https://twitter.com/DAMNSONA/status/1751284420839969169
 **Winner**: [Royce](https://twitter.com/DAMNSONA/status/1754640547895980283)
 
 **Interesting fact:** these games held 36 participants. Also, Sona (i.e. me) holds the record on the amount of deaths during bloodbath - total of 3. This is also Royce's second win.
+
+---
+
+### 21st Hunger Games
+
+**Date**: February 8th, 2024
+
+**Link**: <https://twitter.com/DAMNSONA/status/1755659601763090766>
+
+**Winner:** [Mordekaiser](https://twitter.com/DAMNSONA/status/1755674849442156677)
+
+**Interesting fact:** By now, Sona is the only one to die in bloodbath 4 times. Also, this is the second occasion of Mordekaiser dying to squirrels.
+The winner of these games is, interestingly enough, a variant of Mordekaiser.
+
+--
+
